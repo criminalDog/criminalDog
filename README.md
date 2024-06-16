@@ -1,0 +1,6 @@
+- Hi, I’m @criminalDog
+- I’m interested in Game Development and Modding
+- I’m currently learning Java
+- I’m looking to collaborate on nothing
+- Pronouns: He/They
+- Fun fact: I got anxiety!
