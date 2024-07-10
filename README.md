@@ -3,4 +3,4 @@
 - I’m currently learning Java
 - I’m looking to collaborate on nothing
 - Pronouns: He/They
-- Fun fact: I have anxiety!
+- Fun fact: None
